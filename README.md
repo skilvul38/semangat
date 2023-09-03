@@ -1,0 +1,2 @@
+# semangat
+ayo semangat belajar
